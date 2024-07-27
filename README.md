@@ -4,7 +4,7 @@
 - 💞️ 那就请您联系我的QQ2106969202
 - 📫 或者联系我的微信号ollollcn
 - 😄 加我请备注买域名哦！
-- ⚡ 购买域名的你一定很酷!
+- ⚡ 购买域名的您一定很酷!
 
 <!---
 m55667788/m55667788 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
